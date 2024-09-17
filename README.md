@@ -1,2 +1,2 @@
 # OwO!
-https://tenor.com/lCrGshfDFJW.gif
+https://media1.tenor.com/m/XrBDGNKy2bYAAAAd/gojo-gojo-satoru.gif
