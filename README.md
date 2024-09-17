@@ -1,2 +1,2 @@
 # OwO!
-https://media1.tenor.com/m/XrBDGNKy2bYAAAAd/gojo-gojo-satoru.gif
+https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHN2ZmFuMnB4M3J5bHgwdGM5emluYW5jN2o4bXJnOXB2YnF6bnlrOSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/zGfutPr2gc4l74bWO1/giphy.webp
