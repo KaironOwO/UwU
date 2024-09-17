@@ -1,2 +1,2 @@
 OwO 
-<iframe src="https://giphy.com/embed/zGfutPr2gc4l74bWO1" width="480" height="269" style="" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/jujutsu-kaisen-jjk-gojo-zGfutPr2gc4l74bWO1">via GIPHY</a></p>
+![gojo-satoru](https://github.com/user-attachments/assets/6c9682d8-60ce-4963-adcf-3ff609ff0f28)
