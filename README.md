@@ -1,2 +1,2 @@
 # OwO!
-<div class="tenor-gif-embed" data-postid="9615156950207548718" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/gojo-satoru-satoru-gojo-talking-satoru-gojo-anime-gif-9615156950207548718">Gojo Satoru Sticker</a>from <a href="https://tenor.com/search/gojo-stickers">Gojo Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+https://tenor.com/lCrGshfDFJW.gif
